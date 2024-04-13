@@ -1,0 +1,1 @@
+# Aplicacao-Automatizacao-Analise_Acoes
